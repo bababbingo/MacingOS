@@ -1,2 +1,1 @@
-# MacingOS
-Here can you install macos safe 
+hello this is MacingOS its 3 difrent versions and you will nead me to make MacOS BEY.
